@@ -1,1 +1,0 @@
-# putridwinatryska_075_pratikum06
